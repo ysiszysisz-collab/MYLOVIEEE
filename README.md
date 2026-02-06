@@ -1,2 +1,3 @@
 # MYLOVIEEE
 for ma love alex made by .y3614 on discord
+ ahem. thjs should lowk only be viewed by me or the person I made this for so like u needa leave if ur not her.....
